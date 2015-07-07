@@ -2,4 +2,4 @@
 
 Esta serie de libros cuentan la historia de un hacker de los que hay pocos.
 
-**Luis Miguel Redondo Franco**
+**Luis Miguel Redondo Franco**, Larry Plotter Lover
